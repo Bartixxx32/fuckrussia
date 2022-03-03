@@ -1,3 +1,3 @@
 # fuck USA
 
-#Star this project, Fuck USA
+Star this project, Fuck USA
